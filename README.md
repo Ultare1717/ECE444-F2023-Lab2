@@ -14,3 +14,10 @@ Repo:- ![image](https://github.com/Ultare1717/Ultare1717.github.io/assets/672293
 HomePage:- ![image](https://github.com/Ultare1717/Ultare1717.github.io/assets/67229334/abba29ef-da00-4c41-bfa7-5cbf9e059244)
 
 
+Activity 3:
+
+Homepage: ![image](https://github.com/Ultare1717/Ultare1717.github.io/assets/67229334/e7c4f11f-b7d9-4792-abf7-79fa1fa307ed)
+
+Repo: ![image](https://github.com/Ultare1717/Ultare1717.github.io/assets/67229334/9fb0141a-cb4a-447b-bb14-9aaf90407dc4)
+
+
