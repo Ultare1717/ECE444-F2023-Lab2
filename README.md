@@ -22,7 +22,7 @@ Repo: ![image](https://github.com/Ultare1717/Ultare1717.github.io/assets/6722933
 
 Activity 4:
 
-Places Visited Page: ![image](https://github.com/Ultare1717/Ultare1717.github.io/assets/67229334/c21e4570-1225-4977-b090-1089b6c4bf9c)
+Places Visited Page: ![image](https://github.com/Ultare1717/Ultare1717.github.io/assets/67229334/eaf6792e-e359-4049-b756-8e2d5f9121f2)
 
 Repo: ![image](https://github.com/Ultare1717/Ultare1717.github.io/assets/67229334/1cd85813-06f6-46ad-a69b-764199773bd3)
 
